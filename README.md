@@ -17,3 +17,16 @@ To use my critical thinking and problem solving skills to learn a new language a
 • Dog walking
 
 
+##### A&K ENTERPRISE &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;(Kent, WA) &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 2013-2017
+•First point of contact
+
+• Answering incoming calls
+
+• Setting appointments
+
+• Maintaining Calander
+
+• Emailing updates and reminders
+
+
+##### T-Mobile 
