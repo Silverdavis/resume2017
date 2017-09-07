@@ -1,10 +1,7 @@
 # resume2017
  Silverstein M. Davis
- 
-Silver.Davis@gmail.com
-
+ Silver.Davis@gmail.com
 206.775.2020
-
 2132 NE 6th CT Renton, WA 98056
  
  OBJECTIVE
