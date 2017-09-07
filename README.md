@@ -9,7 +9,7 @@ To use my critical thinking and problem solving skills to learn a new language a
 
 
 ### PROFESSIONAL EXPERIENCE
-##### RollDogs Dog Walking &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;  2014-Present
+##### RollDogs Dog Walking &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; (Seattle, WA) &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 2014-Present
 • Rollerblading with dogs to excersize them
 
 • Canine behavior modification
@@ -29,4 +29,11 @@ To use my critical thinking and problem solving skills to learn a new language a
 • Emailing updates and reminders
 
 
-##### T-Mobile 
+##### T-Mobile &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; (Beaverton, OR) &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;2013-2014
+• Provide customer service
+
+• Resolve customer problems
+
+• Trouble shoot cellphone issues
+
+•Opening and closing retail store
