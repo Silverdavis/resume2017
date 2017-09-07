@@ -1,6 +1,9 @@
 # resume2017
  Silverstein M. Davis
-Silver.Davis@gmail.com 206.775.2020 2132 NE 6th CT Renton, WA 98056
+Silver.Davis@gmail.com
+206.775.2020 
+2132 NE 6th CT Renton, WA 98056
+ 
  OBJECTIVE
  Secure a full or part time position with a successful company or established corporation that requires a highly moti- vated and committed individual with extensive computer and customer service skills and a desire to innovate. Seek- ing a position with career growth potential.
 PROFESSIONAL EXPERIENCE
