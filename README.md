@@ -8,4 +8,6 @@ To use my critical thinking and problem solving skills to learn a new language a
 
 
 
-### PROFESSIONAL
+### PROFESSIONAL EXPERIENCE
+##### RollDogs Dog Walking <space> ##### 2014
+
