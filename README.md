@@ -5,7 +5,8 @@ Silver.Davis@gmail.com
 2132 NE 6th CT Renton, WA 98056
  
  OBJECTIVE
- Secure a full or part time position with a successful company or established corporation that requires a highly moti- vated and committed individual with extensive computer and customer service skills and a desire to innovate. Seek- ing a position with career growth potential.
+ Secure a full or part time position with a successful company or established corporation that requires a highly motivated and committed individual with extensive computer and customer service skills and a desire to innovate. Seeking a position with career growth potential.
+ 
 PROFESSIONAL EXPERIENCE
 2014 - Present Dog walker/runner
 • Handlingdogsofalltemperamentsandbreeds • Caninebehaviormodification
