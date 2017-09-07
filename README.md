@@ -9,5 +9,9 @@ To use my critical thinking and problem solving skills to learn a new language a
 
 
 ### PROFESSIONAL EXPERIENCE
-##### RollDogs Dog Walking &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;  2014
+##### RollDogs Dog Walking &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;  2014-Present
+• Rollerblading with dogs to excersize them
+• Canine behavior modification
+• Dog walking
+
 
