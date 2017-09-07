@@ -40,5 +40,5 @@ To use my critical thinking and problem solving skills to learn a new language a
 
 
 ### SKILLS
-•Microsoft Word&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;• Pages&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;• Excel&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;•Numbers&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;• Adaptibility&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; • Decision Making&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 
+•Microsoft Word&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;• Pages&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;• Excel&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;•Numbers&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;• Fast Learner&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; • Decision Making&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 
 •Leadership&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;•Communication
