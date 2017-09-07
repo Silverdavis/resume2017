@@ -4,7 +4,7 @@
 206.775.2020
 2132 NE 6th CT Renton, WA 98056
  
- OBJECTIVE
+ OBJECTIVE 
  Secure a full or part time position with a successful company or established corporation that requires a highly motivated and committed individual with extensive computer and customer service skills and a desire to innovate. Seeking a position with career growth potential.
  
 PROFESSIONAL EXPERIENCE
