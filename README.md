@@ -49,4 +49,4 @@ To use my critical thinking and problem solving skills to learn a new language a
 
 • North Seattle Community College&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Diploma 2007
 
-•Bellevue College&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;General Education&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;2008-2012
+•Bellevue College&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;General Education&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;2008-2010
