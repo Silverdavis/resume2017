@@ -42,3 +42,11 @@ To use my critical thinking and problem solving skills to learn a new language a
 ### SKILLS
 •Microsoft Word&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;• Pages&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;• Excel&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;•Numbers&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;• Fast Learner&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; • Decision Making&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 
 •Leadership&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;•Communication
+
+
+### EDUCATION
+• High School&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Bronx Acedemy of Letters&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;2004-2006
+
+• North Seattle Community College&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Diploma 2007
+
+•Bellevue College&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;General Education&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;2008-2012
